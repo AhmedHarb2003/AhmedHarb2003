@@ -6,8 +6,6 @@
 * ⚡ I'm interested in problem solving and competitive Programing contests
 * 📫 You can reach me at harbahmed2003@gmail.com
 
-- 🔭 I’m currently working on this page. 
-
 
 
 
